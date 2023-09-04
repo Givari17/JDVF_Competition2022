@@ -5,3 +5,6 @@
 
 #### Kunjungi tautan berikut untuk melihat visualisasi dashboard interaktif pada website open data Jabar.
 https://opendata.jabarprov.go.id/id/visualisasi/potensi-kriminalitas-dan-konflik-di-jawa-barat---jdvf-competition-2022
+
+Final Persentasi 07:43:18 Finalist 9 :
+https://www.youtube.com/watch?v=5dLC9irjJEo&list=PLgL9dcei9twJnGPIuYFnZ1brrBRmVPwG9&index=5
